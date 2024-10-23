@@ -6,4 +6,4 @@ meus hobbys são:tirar foto de carros, muay thai, andar de bike e jogar
 
 
 
-![teste](https://i.pinimg.com/originals/5f/62/05/5f6205454ea8915cdff175ae3f0b1ed8.gif)
+![teste](https://thumbs.dreamstime.com/b/um-indiv%C3%ADduo-amarelo-do-sorriso-com-cara-e-as-botas-85536608.jpg)
