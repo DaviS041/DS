@@ -1,7 +1,6 @@
 # DS
 
 me chamo Davi Sovinski tenho 15 anos e sou estudante
-meus hobbys são:tirar foto de carros, muay thai, andar de bike e jogar
 
 
 
